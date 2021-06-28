@@ -1,4 +1,4 @@
-* Goosebumps :skull:
-* Harry Potter :tada:
-  * Food :heart:
+* Goosebumps 💀
+* Harry Potter 🔮
+  * Food ❤
   * Travel 🌴
