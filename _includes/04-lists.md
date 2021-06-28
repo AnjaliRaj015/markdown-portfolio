@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+* Goosebumps :skull:
+* Harry Potter :tada:
+  * Food :heart:
+  * Travel 🌴
